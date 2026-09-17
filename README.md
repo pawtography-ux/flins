@@ -4,5 +4,4 @@ hai everybody , this is my secondary account, so I won't be editing much. I'd li
 
 And if anyone sees anyone copying me or anything else, please message me here or on Facebook: bún đậu nước mắm .
 
-end.
-klinh
+bye byee , dont be curious.
